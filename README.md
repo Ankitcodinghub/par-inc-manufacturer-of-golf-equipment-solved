@@ -1,0 +1,1 @@
+# par-inc-manufacturer-of-golf-equipment-solved
